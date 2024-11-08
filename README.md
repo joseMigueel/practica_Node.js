@@ -1,1 +1,1 @@
-# Por un tema muy personal, esta semana no he podido realizar la práctica. Te envio esto, por si se podria hacer una reentrega ya que este tema me gusta mucho. Muchas gracias y Disculpa por no poder enviar la práctica ahora.
+### Por un tema muy personal, esta semana no he podido realizar la práctica. Te envio esto, por si se podria hacer una reentrega ya que este tema me gusta mucho. Muchas gracias y Disculpa por no poder enviar la práctica ahora.
